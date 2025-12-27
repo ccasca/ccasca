@@ -11,6 +11,7 @@
 
 ⟢please feel free to c+h with me anytime!!⊹₊⟡⋆ I love when people are being themselves around mew :D⊹ ࣪ ˖
 
+![17668410690947746499669026897750](https://github.com/user-attachments/assets/a037bb7b-41e9-485f-ba3c-fec0406fd031)
 
 ── .✦ᗪᑎIs:
 
@@ -21,5 +22,7 @@
 
 ⑅ . ⑅ . ⑅ . ⑅ . ⑅ . 
 I am an awkward person plz (I TRIED NOT TO OKAY)
+
+
 
 BIGGEST SHOUT OUT TO 𑣲LUC WHO HELPED ME MAKING TS UWU I LOVE YOUUUUUUUNYAAAA PLS DONT DIE
