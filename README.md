@@ -7,3 +7,8 @@
 ꨄ︎˚̣̣̣ ꒷︶♡︶꒷˚̣̣̣︶ ͡𑁬♡໒ ͡ ︶˚̣̣̣꒷︶♡︶꒷ ˚̣̣̣ꨄ︎
 
 ⋆⁺₊⋆ i go by any pronouns idrm:33 you can call me casca/cass !!  I'm a silently fishcial lover.. heh 
+
+please feel free to c+h with me anytime!! I don't mind you touching my pixel.. 
+
+
+
