@@ -8,6 +8,9 @@
 
 ⋆⁺₊⋆ i go by any pronouns idrm:33 you can call me casca/cass !!  I'm a silently fishcial lover.. heh 
 
-please feel free to c+h with me anytime!! I don't mind you touching my pixel.. I'm trying to be friendly okay 😡
 
+please feel free to c+h with me anytime!! I love when people are being themselves around mew :D
 
+<img width="2048" height="1775" alt="17668385711598139536356805030553" src="https://github.com/user-attachments/assets/7b0d056f-8a85-4d86-aff3-005e55ae16d3" />
+
+⑅ . ⑅ . ⑅ . ⑅ . ⑅ . 
